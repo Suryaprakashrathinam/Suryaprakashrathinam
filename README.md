@@ -1,3 +1,8 @@
+                                                                                                                Hi guys, this is your surya
+
+
+
+
 - 👋 Hi, I’m @Suryaprakashrathinam
 - 👀 I’m interested in Data Analyst
 - 🌱 I’m currently learning Excel, Power BI, Python, SQL, 
