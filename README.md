@@ -1,6 +1,4 @@
-                                                                                                                Hi guys, this is your surya
-
-
+Hi guys, this is your surya
 
 
 - 👋 Hi, I’m @Suryaprakashrathinam
