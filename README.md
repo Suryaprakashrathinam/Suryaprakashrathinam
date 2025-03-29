@@ -2,7 +2,7 @@
 
 ![212747903-e9bdf048-2dc8-41f9-b973-0e72ff07bfba](https://github.com/user-attachments/assets/41ebadcd-d539-47e9-b7a9-6c512752e219)
 
-## Hi guys, this is surya coming from Bangalore
+## Hi guys, this is surya from Bangalore
 
 
 
